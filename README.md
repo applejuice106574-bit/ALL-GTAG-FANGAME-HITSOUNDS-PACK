@@ -1,2 +1,2 @@
 # ALL-GTAG-FANGAME-HITSOUNDS-PACK
-this is almost EVERY hitsound anyone will ever need for their gtag fangame
+this is almost EVERY hitsound anyone will ever need for their gtag fangame, im talking hitsounds that are from every tutorial on youtube, like custom hitsounds, hitsounds from lethal ape, lethal ape redux, big scary, creepy apes, i could go on! theres custom hitsounds, ive spent weeks possibly even a month getting these sounds into a project, so you guys use them for whatever projects you need, we have realistic, cartoony hitsounds, you name it!
